@@ -10,13 +10,4 @@
 - ⚡ Fun fact: I am crazy ay basketball and I can stay and ball for the whole day 
 
 ### Connect with me:
-
-
-[<img align="left" alt="Sabesan | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
-
-
-<br />
-
-
----
-[linkedin]: https://www.linkedin.com/in/yajing-gao-ash
+Linkedin: https://www.linkedin.com/in/yajing-gao-ash
