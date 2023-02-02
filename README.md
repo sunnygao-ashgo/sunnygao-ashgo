@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/yajing-gao-ash/](https://www.linkedin.com/in/yajing-gao-ash/)
 
-- ⚡ Fun fact **I am crazy ay basketball and I can stay and ball for the whole day**
+- ⚡ Fun fact **I am crazy at basketball and I can stay and ball for the whole day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
